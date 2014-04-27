@@ -1,0 +1,1 @@
+Ullu nach rahay the, mene photo khecha tha.
